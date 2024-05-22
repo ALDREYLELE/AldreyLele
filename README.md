@@ -13,6 +13,5 @@ EMAIL 📩
 aldreyleticialeticia@gmail.com
 
 
-![](https://media.tenor.com/i7llTDaTPtUAAAAC/naruto.gif)
 
-
+![](https://media.tenor.com/Nad3XaT_fmMAAAAM/okay-penelope.gif)
