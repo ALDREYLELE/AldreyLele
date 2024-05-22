@@ -8,8 +8,11 @@ Meu nome é Aldrey Leticia
 
 Contato 
 
-EMAIL 📩 
+EMAIL 📩
+
 aldreyleticialeticia@gmail.com
 
 
-![](https://tenor.com/pt-BR/view/okay-penelope-bridgerton-featherington-nicola-gif-20215115)
+![](https://media.tenor.com/i7llTDaTPtUAAAAC/naruto.gif)
+
+
