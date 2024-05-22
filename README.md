@@ -10,3 +10,6 @@ Contato
 
 EMAIL 📩 
 aldreyleticialeticia@gmail.com
+
+
+![](https://tenor.com/pt-BR/view/okay-penelope-bridgerton-featherington-nicola-gif-20215115)
